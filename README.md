@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GhostSanket14.
+- 👀 I’m interested in Software development and Web development.
+- 🌱 I’m currently learning BTech in Information Technology
+- 💞️ I’m looking to collaborate on personal coding projects.
+- 📫 How to reach me : sanketghfake@gmail.com , It is my mail address and this is where I will respond.
