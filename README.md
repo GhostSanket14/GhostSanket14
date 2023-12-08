@@ -1,1 +1,1 @@
-![ezgif com-add-text (1)](https://github.com/GhostSanket14/GhostSanket14/assets/99405599/dde47f9a-911c-481b-a194-c40449daff93)
+![ezgif com-reverse](https://github.com/GhostSanket14/GhostSanket14/assets/99405599/905814c4-c968-4eeb-bfc4-72ecd58316a5)
