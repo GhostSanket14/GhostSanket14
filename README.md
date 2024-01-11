@@ -1,1 +1,1 @@
-![Test](https://github.com/GhostSanket14/GhostSanket14/assets/99405599/f26a9e0f-4658-4140-b3a7-f91fe2de1556)
+![Jan 24 Sanket poster for GitHub](https://github.com/GhostSanket14/GhostSanket14/assets/99405599/cdabc938-b11d-4462-8a6a-487a98cc0b91)
